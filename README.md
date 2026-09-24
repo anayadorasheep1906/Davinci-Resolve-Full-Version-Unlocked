@@ -1,0 +1,1 @@
+# Davinci-Resolve-Full-Version-Unlocked
